@@ -6,7 +6,7 @@
 
 ## Information security student and css 💻 
 
-[Telegram]([(https://t.me/XDL2D)]
+[Telegram](https://t.me/XDL2D)
 
 # This is Skill i have learned ⬇
 
